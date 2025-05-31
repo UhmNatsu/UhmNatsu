@@ -9,3 +9,6 @@ tis shelly :3 Also Abt that...
 i go by the name Nats or Natsu! 
 Please remind me if i get too CHAOTIC im sorry 
 Unfriend me if you want idm 
+ou did i say that again.. heh 
+ty for reading my whatsoever READMEEE
+

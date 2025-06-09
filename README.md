@@ -4,5 +4,8 @@ oh yea, SHES MY SECOND TOON IBY TISHAA!!🎀
 int if ya want idm! Can be a tinsy-binsy chaotic around.. almost lost a friend but still remind me if im "too' chaotic ^^ i don't want to lose friends. 
 Dandys world fandom 4EVER!! HAH 
 ![Image](https://github.com/user-attachments/assets/36467d85-420a-4259-a0a5-0e0f77a97240)
+things to know abt me!! 🎀
 
-
+• Yuh can call me Natsu or Nats 
+• if ya have any probs i can quite help if we r close.^^
+ yuh thats all :P

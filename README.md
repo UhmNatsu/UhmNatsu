@@ -7,5 +7,6 @@ Dandys world fandom 4EVER!! HAH
 things to know abt me!! 🎀
 
 • Yuh can call me Natsu or Nats 
+
 • if ya have any probs i can quite help if we r close.^^
  yuh thats all :P

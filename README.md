@@ -10,3 +10,6 @@ things to know abt me!! 🎀
 
 • if ya have any probs i can quite help if we r close.^^
  yuh thats all :P
+
+ Fandoms im inn :3 :- dandys world,4saken,Fnaf,Crk,Vocaloid
+ and uhh sth 

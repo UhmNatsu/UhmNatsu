@@ -42,4 +42,6 @@ please stay safe.
 
 •Any other! (Vocaloid,Sth,fnf,forsaken)
 
-
+# Straw-Pages
+Any other Strawpages are:- 
+in my profile obv 😛

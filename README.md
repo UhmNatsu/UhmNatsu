@@ -17,7 +17,7 @@ things to know abt me!! 🎀
 
 • i don't support racists,bullies, fake friends and all. you disgust me. 
 
-ppl under 12 unless you been friends with me before i even started this Github
+ppl under 12,unless you been friends with me before i even started this Github.
 
 lookie here i seen ppl just ignoring new players but we could try to int with them to show how the game is? but iets try to int with them.
 
@@ -28,7 +28,7 @@ Some new player needed friends so i added them. wanna know what they did? they w
 
 i removed them. i saw them asking other new ppl and that player firstly asked their age,gender and specially asked if they were a girl.
 
-please stay safe.
+Please stay safe.
 
 
 

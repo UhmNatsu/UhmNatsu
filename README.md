@@ -19,9 +19,13 @@ things to know abt me!! 🎀
 ppl under 12 unless you been friends with me before i even started this Github
 
 lookie here i seen ppl just ignoring new players but we could try to int with them to show how the game is? but iets try to int with them.
+
 but beware of weirdos because ime tell you something.
 Some new player needed friends so i added them. wanna know what they did? they whispered me smtg, quite weird.
 
+"don't worry" then again "don't worry baby'.
+
+i removed them. i saw them asking other new ppl and that player firstly asked their age,gender and specially asked if they were a girl.
 thank you for reading this whatsoever readme 
 
 

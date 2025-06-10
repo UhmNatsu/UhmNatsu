@@ -9,8 +9,7 @@ things to know abt me!! 🎀
 • if ya have any probs i can quite help if we r close.^^
  yuh thats all :P
 
- Fandoms im inn :3 :- dandys world,4saken,Fnaf,Crk,Vocaloid
- and uhh sth 
+
 # Just-before-int 
 
 • just int unless you want to.
@@ -22,7 +21,7 @@ thats all.
 thank you for reading this whatsoever readme 
 
 
-# Cool-ppl-you-might-follow
+# Fandoms im in
 ![Image](https://github.com/user-attachments/assets/7a50b24b-5c56-4a47-9fe1-46839dcf4c5d)
 
-• @M1SS-F0SS1L1AN cuz shes so kewl
+• 

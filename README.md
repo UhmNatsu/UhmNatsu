@@ -35,3 +35,7 @@ please stay safe.
 ![Image](https://github.com/user-attachments/assets/7a50b24b-5c56-4a47-9fe1-46839dcf4c5d)
 
 • FNAF, ppl think that im that fnaf ytuber 😭🤚 
+
+•Dandys world (Its obvious!) 🎀
+
+•Cookie Run kingdom (can i steal you're luck ☺️)

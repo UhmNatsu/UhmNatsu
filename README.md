@@ -27,7 +27,8 @@ Some new player needed friends so i added them. wanna know what they did? they w
 
 i removed them. i saw them asking other new ppl and that player firstly asked their age,gender and specially asked if they were a girl.
 
-it was weird. stay safe.
+please stay safe.
+
 
 
 # Fandoms im in

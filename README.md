@@ -1,7 +1,7 @@
 # Art-by-UhmNatsu.-
 Art by Natsuu ![Image](https://github.com/user-attachments/assets/e99afb6a-6a37-4b2e-8f55-79ba17088a73)
 huh hi ^^
-![Image](https://github.com/user-attachments/assets/36467d85-420a-4259-a0a5-0e0f77a97240)
+
 things to know abt me!! 🎀
 
 • Yuh can call me Natsu or Nats 

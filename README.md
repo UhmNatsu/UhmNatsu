@@ -13,3 +13,10 @@ things to know abt me!! 🎀
 
  Fandoms im inn :3 :- dandys world,4saken,Fnaf,Crk,Vocaloid
  and uhh sth 
+# Just-before-int 
+
+• just int unless you want to.
+
+• i don't support racists,bullies, fake friends and all. you disgust me. 
+
+thats all.

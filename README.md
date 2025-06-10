@@ -18,3 +18,5 @@ things to know abt me!! 🎀
 • i don't support racists,bullies, fake friends and all. you disgust me. 
 
 thats all.
+
+thank you for reading this whatsoever readme 

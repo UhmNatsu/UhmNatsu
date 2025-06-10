@@ -16,7 +16,7 @@ things to know abt me!! 🎀
 
 • i don't support racists,bullies, fake friends and all. you disgust me. 
 
-thats all.
+ppl under 12 unless you been friends with me before i even started this Git
 
 thank you for reading this whatsoever readme 
 

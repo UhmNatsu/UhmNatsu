@@ -48,3 +48,9 @@ Any other Strawpages are:-
 in my profile obv 😛
 
 New Strawpages are updated in my Read.Me!
+
+
+# GIF-made-by-me
+![Image](https://github.com/user-attachments/assets/8a1daa82-72cf-4a72-a33a-89485462aafa)
+
+ever wondering how to make you're own GIFs? welp i used tuts which surprisingly helped. you first gotta go to google and just type ezgif then make the GIF, simple.

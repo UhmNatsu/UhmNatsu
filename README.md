@@ -58,3 +58,5 @@ New Strawpages are updated in my Read.Me!
 you first gotta go to google and just type ezgif then make the GIF, simple!!
 
 the GIF i made looks lazy ngl 😭 
+
+its like bassie begging for happiness

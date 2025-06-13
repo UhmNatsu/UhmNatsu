@@ -1,6 +1,7 @@
 # Art-by-UhmNatsu.-
 Art by Natsuu ![Image](https://github.com/user-attachments/assets/e99afb6a-6a37-4b2e-8f55-79ba17088a73)
-huh hi ^^
+
+# Just-before-int 
 
 🎀 things to know abt me!! 
 
@@ -8,10 +9,6 @@ huh hi ^^
 
 • if ya have any probs i can quite help if we r close.^^
 
- yuh thats all :P
-
-
-# Just-before-int 
 
 • just int unless you want to.
 

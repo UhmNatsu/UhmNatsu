@@ -32,16 +32,14 @@ Please stay safe.
 # Fandoms im in
 ![Image](https://github.com/user-attachments/assets/7a50b24b-5c56-4a47-9fe1-46839dcf4c5d)
 
-• FNAF, ppl think that im that fnaf ytuber 😭🤚 
+• FNAF 
 
-•Dandys world (Its obvious!) 🎀
+•Dandys world 
 
-•Cookie Run kingdom (can i steal you're luck ☺️)
+•Cookie Run kingdom
 
 •Any other! (Vocaloid,Sth,fnf,forsaken)
 
-
-# Bye
 ![Image](https://github.com/user-attachments/assets/8a1daa82-72cf-4a72-a33a-89485462aafa)
 
-its like bassie begging for happiness.. 
+its like bassie begging for happiness.. yea 

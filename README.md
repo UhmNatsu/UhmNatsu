@@ -40,6 +40,4 @@ Please stay safe.
 
 •Any other! (Vocaloid,Sth,fnf,forsaken)
 
-![Image](https://github.com/user-attachments/assets/8a1daa82-72cf-4a72-a33a-89485462aafa)
-
-its like bassie begging for happiness.. yea 
+thats all yuh :P

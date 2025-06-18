@@ -5,3 +5,5 @@
    # Hi, Im natsu :3
   i usually am offtab or with my 
     friends dw im friendly 
+
+![Image](https://github.com/user-attachments/assets/3d100e46-8085-4165-afcf-19f8bffcbe67)

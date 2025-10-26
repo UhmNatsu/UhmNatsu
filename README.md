@@ -1,4 +1,4 @@
-# if ppl forgot abt me id even care now ://// 
+if ppl forgot abt me id even care now ://// 
 pls don't copy my skins:3
 
 
